@@ -4,7 +4,7 @@
 
 
 
-                            OWARE CONSOLE GAME
+                            MANKALA CONSOLE GAME
 
 
                             © 2015 - 2016
